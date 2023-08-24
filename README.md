@@ -1,2 +1,2 @@
 
-#high school pics you was even bad then
+#high school 
